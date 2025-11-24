@@ -1,0 +1,1 @@
+# Chislennuye-Metodu
